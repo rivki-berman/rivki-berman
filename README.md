@@ -6,7 +6,7 @@
 
 📱 +972-53-417-2676
 
-🌐 Portfolio: https://malkashneider.lovable.app
+🌐 Portfolio: https://rivka-berman.lovable.app
 
 ---
 
