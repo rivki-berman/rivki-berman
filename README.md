@@ -1,8 +1,11 @@
 # 👋 Hi, I'm Rivka Berman
 
 🚀 Software Developer | Full-Stack
+
 📧 rivki2676@gmail.com
+
 📱 +972-53-417-2676
+
 🌐 Portfolio: https://malkashneider.lovable.app
 
 ---
